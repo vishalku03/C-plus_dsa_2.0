@@ -1,8 +1,6 @@
-![CONSOLEBUSTERS](https://res.cloudinary.com/dkbtmzdtt/image/upload/v1694111744/MYYYYYY/DES_eugygl.png)
 
-# Download Epic Notes
 
-[📩Download Awesome Notes](https://drive.google.com/drive/folders/1y5ASkbzXW6C5Owx7J_qKjy4QltgBvb4I?usp=drive_link)
+
 
 ## **Course mentors are Love Babbar & Lakshay Kumar Bhaiya**
 
